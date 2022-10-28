@@ -1,0 +1,1 @@
+Espero lograr en el bootcamp una evolución y crecimiento "académico" de tal manera que pueda tanto hacer mi propio sitio web para mi negocio y así mismo crear un buen portafolio para poder acceder a un trabajo bien remunerado.
